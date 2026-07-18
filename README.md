@@ -7,8 +7,8 @@
 
 
 - 🧠 Just leveled up to Master's in AI after surviving the Bachelor grind.
-- 🚀 Currently mastering the art of teaching machines how to think at Maastricht University, class of 2025.
-- ⚡ Fun fact: My therapist thinks my neural networks have a preoccupation for revenge. We’ll see about that.
+- 🚀 Mastered the art of teaching machines how to think at Maastricht University, class of 2026.
+- ⚡ Fun fact: A strawberry is not actually a berry, and it is the only fruit that grows its seeds on the outside.
 
 ### 🌐 Connect with me:
 
